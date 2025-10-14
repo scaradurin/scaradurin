@@ -1,4 +1,7 @@
 ## hey there
+мб в тг еще инфо сделаю хаха
+
+
 <img width="5120" height="2880" alt="IMG_5919" src="https://github.com/user-attachments/assets/cf1ce4e0-47fa-4fda-b3f6-9b39d5ed340d" />
 
 i don't really want to share my info, so just call me by the name of the character I'm cosplaying
