@@ -1,5 +1,5 @@
 ## hey there
-мб в тг еще инфо сделаю хаха
+I'm almost always studying and afk sorry
 
 
 <img width="5120" height="2880" alt="IMG_5919" src="https://github.com/user-attachments/assets/cf1ce4e0-47fa-4fda-b3f6-9b39d5ed340d" />
