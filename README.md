@@ -1,4 +1,8 @@
 ## hey there
+old user is tillsfeetlicker ...😭
+
+durin and kosma irl
+
 I'm almost always offtab sorry
 
 
@@ -29,3 +33,12 @@ PPL UNDER 12 YEARS OLD DNI I don't really care about other things ok
 
 durindurindurindurindurindurindurindurindurin
 <img width="2276" height="4000" alt="IMG_20250724_004538_968" src="https://github.com/user-attachments/assets/8c0718a1-9a20-45fa-914f-9c40b84d0d13" />
+<img width="859" height="811" alt="image" src="https://github.com/user-attachments/assets/89210c3a-b07c-4898-b95b-aa4aaa826414" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/11ef9039-540f-4c7d-b137-285eb58e1f0f" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/e791378f-1070-454d-917d-17627b10456b" />
+
+
+
+
+
+
