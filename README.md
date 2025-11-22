@@ -1,6 +1,4 @@
 ## hey there
-old user is tillsfeetlicker ...😭
-
 durin and kosma irl
 
 I'm almost always offtab sorry
